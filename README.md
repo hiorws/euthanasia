@@ -48,3 +48,6 @@ Tarihin altın şafağından
 Biz kırıldık daha da kırılırız
 
 Kimse dokunamaz bizim suçsuzluğumuza.
+
+
+https://www.youtube.com/watch?v=j3OPOYG6XIQ
